@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @dybadotcode
 - 👀 I’m interested in Jesus
-- 🌱 I’m currently learning exorcism
-- 💞️ I’m looking to collaborate on true angels
-- 📫 How to reach me , I am out of reach
